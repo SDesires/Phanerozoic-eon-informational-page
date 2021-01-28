@@ -1,0 +1,3 @@
+I am helping with a project that someone is doing for school and they are VERY disorganized, so in order to do so and to make sure that they still do all of the work that they are supposed to do, I am going to create an outline of what they need to research first. 
+
+To be continued...
